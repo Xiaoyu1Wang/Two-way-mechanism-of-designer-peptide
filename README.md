@@ -1,1 +1,0 @@
-# Two-way-mechanism-of-designer-peptide
